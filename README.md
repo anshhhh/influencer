@@ -1,2 +1,2 @@
 # influencer
-Ansh Sethiv - an influencer
+Ansh Sethi - an influencer
